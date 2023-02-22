@@ -1,2 +1,2 @@
-Klinsi priyankara Front end developer 
+- Klinsi priyankara Front end developer -
 
